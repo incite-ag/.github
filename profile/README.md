@@ -30,7 +30,7 @@ Whether you're seeking your first carbon intensity score to establish a baseline
 - 13% improvement observed at an Ethanol Plant in South Dakota.
 
 ### Source Low-CI Grain
-![Commercial Grain Cooperative](https://assets-global.website-files.com/65933de37186680090631eee/65bbf0e9325384ab244720db_Nick-Kids-New-Cutmp4-poster-00001.jpg)
+![Commercial Grain Cooperative](https://assets-global.website-files.com/65933de37186680090631eee/6598b0e52473ac6bf1ab4275_Farmer-Digging-Soil-poster-00001.jpg)
 
 Empower your grain aggregation business with the capabilities and insights to capture data, score CI, and recognize the impact of individual low-CI bushels in your life-cycle emission score. With Incite.ag, selective sourcing of low-carbon feedstocks is just a few clicks away.
 
